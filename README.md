@@ -1,1 +1,0 @@
-# CurseMen.github.io
